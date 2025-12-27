@@ -39,7 +39,3 @@ Utilizar este espaço para documentar minha evolução em tecnologia, compartilh
 
 ### 🔗 Conecte-se comigo
 - 💼 LinkedIn: https://www.linkedin.com/in/emanoelle-s-76a009125/
-
-
-### 🔗 Conecte-se comigo
-- 💼 LinkedIn: https://www.linkedin.com/in/emanoelle-s-76a009125/
